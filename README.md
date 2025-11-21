@@ -1,0 +1,1 @@
+# AREK_AI2025_SMKN-1-DLANGGU_SalamBooyah
